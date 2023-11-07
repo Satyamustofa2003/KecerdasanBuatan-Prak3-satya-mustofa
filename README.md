@@ -1,0 +1,1 @@
+# KecerdasanBuatan-Prak3-satya-mustofa
